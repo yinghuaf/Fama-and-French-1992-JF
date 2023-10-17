@@ -1,0 +1,1 @@
+# Fama-and-French-1992-JF
